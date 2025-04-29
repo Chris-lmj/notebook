@@ -15,3 +15,9 @@
 
     to fear greatly; be in extreme apprehension of
 
+preach
+
+    to proclaim or make known by sermon (the gospel, good tidings, etc.)
+
+
+
